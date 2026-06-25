@@ -26,6 +26,11 @@
 15. [Risikofaktorer og markedssvingninger](#kapittel-15-risikofaktorer-og-markedssvingninger)
 16. [Praktisk sjekkliste før kjøp](#kapittel-16-praktisk-sjekkliste-før-kjøp)
 17. [Oppsummering: Strategi for maksimal yield](#kapittel-17-oppsummering-strategi-for-maksimal-yield)
+18. [P-rom, S-rom og skjulte arealer: Hva megleren ikke alltid vet](#kapittel-18-p-rom-s-rom-og-skjulte-arealer)
+19. [Prisavslag etter avhendingslova: De vanligste grunnene](#kapittel-19-prisavslag-etter-avhendingslova)
+20. [Hva megler gjør feil – og hvordan du beskytter deg](#kapittel-20-hva-megler-gjør-feil-og-hvordan-du-beskytter-deg)
+21. [Kjøpe billigst mulig: Off-market og underpris-strategier](#kapittel-21-kjøpe-billigst-mulig-off-market-og-underpris-strategier)
+22. [Bygg nettverk: Kontaktene som gir deg fortrinn](#kapittel-22-bygg-nettverk-kontaktene-som-gir-deg-fortrinn)
 
 ---
 
